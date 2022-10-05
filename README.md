@@ -11,4 +11,4 @@ AWARDS<o:p></o:p></u></i></h1>
 
 <p class=MsoNormal align=center style='text-align:center'><o:p>&nbsp;</o:p></p>
 
-<p class=MsoNormal align=center style='text-align:center'> <a href=https://photos.app.goo.gl/q9hT1JAYiEkMBwnq5
+<p class=MsoNormal align=center style='text-align:center'> <a href=https://lh3.googleusercontent.com/Uql_wPh9ndWCjDBAKPl0HSdscDxFrseMquB5jvrU1QL3lGgZfq2TO_eZxxa4BxXdhWHOrJ2Bk7l1HTBJTHNVnsBmbbMwrKUK2YadTkoNkpys-bCwg6Y0Ok8K__MxDz1K36wdtxwL=w2400
