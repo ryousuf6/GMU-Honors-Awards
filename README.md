@@ -21,8 +21,3 @@ the 2022 Spring term:<span style='mso-no-proof:yes'> <o:p></o:p></span></p>
 </p>
 
 <p class=MsoNormal align=center style='text-align:center'><o:p>&nbsp;</o:p></p>
-
-</div>
-
-</body>
-</head>
